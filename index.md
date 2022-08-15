@@ -1,20 +1,3 @@
-# afadfaf
+# Hi welcome to chilis
 
-tjiaeerntowert
-werarwekoarnoar
-rwerow
-
-rwerowermweormnweornkewornwekorneowr
-rweorwenjriowentdsfd
-kboxvcbjkofjbgifdhogdh
-keonmrtow
-itworntkowrtwrt
-
-# rweaor
-
-rmweormnawper
-wrkopgjfdhigfh
-gfoskadopalspdlpsld
-wpeqewüqeöüqweüwqöeqwüe
-ewq
-ewqewqe
+what can I get for you haha just kidding this is a website not a chilis you absolute fool
